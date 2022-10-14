@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @HasinArman
+- 👀 I’m interested in reading books
+- 🌱 I’m currently doing my B.Sc in Health Informatics
